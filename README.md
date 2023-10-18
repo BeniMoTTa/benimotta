@@ -1,6 +1,6 @@
-## Hello, I'm Jozhué Beni Mota and I'm very happy that you are here on my page, I hope you like it 🤓!
+## Hello, I'm Jozhué Beni Mota and I'm very happy that you are here on my page, I hope you like it!
 
-### English is my second language, but I'm always improving more and more, so if you find any language mistakes, let me know 🙋‍♂️!
+### English is my second language, but I'm always improving more and more, so if you find any language mistakes, let me know!
 
 ### Contact me:
 
